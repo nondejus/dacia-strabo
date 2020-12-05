@@ -1,3 +1,0 @@
-# dacia-strabo
-
-paris - wladivostok
